@@ -8,6 +8,6 @@ I make vidéo on it
 
 How to Install: https://www.youtube.com/watch?v=I1i2OfUq8dY&t=5s
 
-Download: https://www.youtube.com/watch?v=I1i2OfUq8dY&t=122s
+Download: https://www.mediafire.com/file/r2bx125uoyya7xc/Bo2-Portable.zip/file
 
 ![1](https://github.com/DeuxWatts/PortableGames/assets/76021098/9316ed3d-52ae-4ec1-aa2d-8317343fe051)
